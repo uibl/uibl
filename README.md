@@ -1,7 +1,11 @@
 # Hi, I'm D2i 
 
-just an ai user bulding dreams.
+
+just an AI user building ideas.
+
 
 ---
 
+
 *Thanks for visiting my profile.*
+
