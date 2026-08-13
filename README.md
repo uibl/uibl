@@ -1,7 +1,7 @@
 # Hi, I'm D2i 
 
 
-just an AI user building ideas.
+just an AI user building Thoughts.
 
 
 ---
